@@ -29,7 +29,7 @@ https://i.ibb.co/ssvvmSd/cherries.png
 
 ### Photography
 
-https://i.ibb.co/S6XFWY6/clementine.png 
+https://i.imgur.com/nVFptJO.png
 
 ### Client 
 
